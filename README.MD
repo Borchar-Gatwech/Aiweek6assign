@@ -6,7 +6,7 @@ Contributors:
 
 Brian Kipchumba
 
-Borchar Gatwetch
+Borchar Gatwech
 
 Masaiwe Rufina
 
